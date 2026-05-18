@@ -1,4 +1,4 @@
-# 
+# best sandwich attack bot scripts is the best sandwich attack bot scripts with honeypot-detection and priority-gas-auctions. Safe, reliable, and optimized for MEV, sniper, and
 
 
 
